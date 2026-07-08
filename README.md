@@ -1,2 +1,2 @@
-# Microsoft-Office-and-Windows-
-利用itellyou 下载，激活软件激活
+# Microsoft Office and Windows Installation-Activation Tutorial
+itellyou 下载，HEU_KMS_Activator激活
